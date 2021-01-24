@@ -108,7 +108,7 @@
 
 <img src="https://tva1.sinaimg.cn/large/008eGmZEgy1gmz06oxebnj30oo0gfjtz.jpg" alt="WechatIMG3" style="zoom: 67%;" />
 
-![WechatIMG1](/Users/cheney/Desktop/EFI 制作发帖/WX20210119-153222.png)
+![WechatIMG1](https://tva1.sinaimg.cn/large/008eGmZEgy1gmz0e9wjmmj308y0d5ah4.jpg)
 
 ![WechatIMG2](https://tva1.sinaimg.cn/large/008eGmZEgy1gmz08injr7j30ug0o5tdd.jpg)
 
